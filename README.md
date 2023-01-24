@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @Avaible-notAvaible
-#Schoolstuc #Admin_Schoolstuc #NotAvaible #Replit  
-
-I am very stupid and have no remaning braincells.
-Never had, but still.
+- 👋       
 
 
 <!---
